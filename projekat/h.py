@@ -1,0 +1,1 @@
+# h isto kao g), dakle nista
